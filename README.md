@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @tidoneyyy (haiky.net in dc)
+- 👋 Hi, I’m @tidoneyyy (tidoneyyy in dc)
 - Years: kvesperra
 - 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate on projects, contact me please
